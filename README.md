@@ -99,4 +99,6 @@ For questions or feedback, feel free to reach out:
 - **LinkedIn**: [Sakshi Fadnavis](https://www.linkedin.com/in/sakshi-fadnavis-3023a9240/)
 - **Email**: [bajpaikv13@gmail.com](mailto:bajpaikv13@gmail.com)
 - **LinkedIn**: [Khushi Bajpai](https://www.linkedin.com/in/khushi-bajpai-763605253/)
+- **Email**: [jshruti034@gmail.com](mailto:jshruti034@gmail.com)
+- **LinkedIn**: [Shruti Jain](https://www.linkedin.com/in/shruti-jain-b0b615225/)
 
